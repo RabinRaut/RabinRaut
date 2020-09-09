@@ -31,6 +31,7 @@
 - 😄 Pronouns: He/His
 - ⚡ Fun fact: I love doing anything that meets my interest.
 <br/>
+
 ### Language and Tools:
 <p>
 <img height="50" src="https://raw.githubusercontent.com/github/explore/80688e429a7d4ef2fca1e82350fe8e3517d3494d/topics/dotnet/dotnet.png"> &nbsp;
