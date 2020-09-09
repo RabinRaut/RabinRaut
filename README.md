@@ -30,7 +30,6 @@
 - 📫 How to reach me: [Instagram- @rabin](https://www.instagram.com/rabinraut.22/), [Facebook- @rabin](https://www.facebook.com/rabin.raut.509),[Linkdein- @rabin](https://www.linkedin.com/in/rabin-raut-16140417b/)
 - 😄 Pronouns: He/His
 - ⚡ Fun fact: I love doing anything that meets my interest.
-<br/>
 
 ### Language and Tools:
 <p>
